@@ -30,7 +30,7 @@ Ai art maker , art tracer : just.. ,just pick up a pencil , and then for those t
 :･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.☽˚｡･ﾟ✧:･.::･ﾟ✧:･.
 # #I Int with!
 
-Any age! but mostly (15 below but high number is alright!)
+Any age! but mostly (16 below but high number is alright!)
 
 mulishipper is fine! (cus I am one too :3)
 
